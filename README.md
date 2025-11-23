@@ -44,7 +44,7 @@ Currently learning and experimenting with:
 ## Contact  
 Let’s connect and collaborate!
 
-- **LinkedIn:** *[(add your link here)](https://www.linkedin.com/in/umaimakamran73/)*  
+- **LinkedIn:** *[(linkedin)](https://www.linkedin.com/in/umaimakamran73/)*  
 - **Email:** umiamakamran73@gmail.com
 
 ---
